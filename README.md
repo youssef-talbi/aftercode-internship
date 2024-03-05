@@ -1,2 +1,1 @@
 # aftercode-internship
-trah tawa
