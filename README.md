@@ -1,1 +1,0 @@
-# aftercode-internship
